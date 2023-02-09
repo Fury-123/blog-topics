@@ -17,5 +17,6 @@ Natural Gas: Natural gas is also a significant energy commodity traded in India,
 Base Metals
 Base metals, such as copper, aluminum, and zinc, are widely traded commodities in India due to their widespread use in various industries, such as construction, electrical, and transportation.
 In conclusion, commodities trading plays a crucial role in the Indian economy, and understanding the most commonly traded commodities can provide valuable insights into the country's growth and development. Whether you're a trader, an investor, or simply interested in the Indian economy, this guide provides a comprehensive overview of the top traded commodities in India
+https://enrichmoney.in/live-level
 
 
